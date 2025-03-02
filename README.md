@@ -1,1 +1,1 @@
-<h1/>A Studio From Africa!😘</h1>
+<h1/>Love From A Studio From Africa!😘</h1>
